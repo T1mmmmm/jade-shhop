@@ -11,3 +11,4 @@ and all that financial issue is giving so much pressure, idk what to do god mayb
 please guide me god I do believe and trust in you
 still shit but thank you god for the way about my tuition proof, hope things get better love you everyone
 thank you god for the chance to breath and decision making
+please bless her get better
