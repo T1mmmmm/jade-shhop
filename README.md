@@ -12,3 +12,5 @@ please guide me god I do believe and trust in you
 still shit but thank you god for the way about my tuition proof, hope things get better love you everyone
 thank you god for the chance to breath and decision making
 please bless her get better
+shuati-ing
+honestly my familys tough i kinda dislike it now especially with the communication shit with my dad, and how the mode my mom and dad yk satsys,it just doesnt feel lkke a family i wanna runaway from so many fking things
